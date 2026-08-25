@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming 
 - 🌱 I’m currently learning c/c++
 - 💞️ I’m looking to collaborate on new and inspiring projects  
-- 📫 How to reach me rupalibiradar44@gmail.com
+- 📫 How to reach me rupalibiradar010@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: -
 
